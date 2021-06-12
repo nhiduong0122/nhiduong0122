@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @nhiduong0122
+- 👀 I’m interested in travel, art and English.
+- 🌱 I’m currently learning teaching of English
+- 📫 Contact me by email: 508190025@ncehcm.edu.vn or duongtuyetnhi2210@gmail.com
